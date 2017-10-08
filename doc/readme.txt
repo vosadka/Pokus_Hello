@@ -1,0 +1,1 @@
+Prvni verze souboru.
